@@ -1,5 +1,5 @@
 # Gennemgang af åbninger
-(Selv)-kritisk gennemgang af åbninger i egne partier.
+Lektier fra lektion 2. (Selv)-kritisk gennemgang af åbninger i egne partier.
 
 ## Parti 1
 [5 min - Sort taber til msabdulla17](https://www.chess.com/analysis/game/live/36897023881)
