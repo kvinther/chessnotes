@@ -45,3 +45,5 @@ Skulle jeg endelig tage på eventyr, kunne **Sd5** give mig en sjov forpost.
 > [Hvad kunne du have spillet i stedet for at opgive her?](https://www.chess.com/game/live/36891646349?username=xenonbomb)
 
 Jeg så det med det samme, da jeg åbnede partiet igen. **11. .., Df6**. Jeg står endda ret godt. Måske det, at vi har på den forkerte side af midnat spillede ind... ;D
+
+**Rettelse:** efter at have kigget igen
